@@ -14,7 +14,7 @@ Pues, es que siento que más que un regalo es un reconocimiento, así quería de
 
 1. La capacidad (para mí) increíble de meter un carrerón en medicina a base de puro esfuerzo y dedicación. ¡Realmente te felicito y te insto a no bajar los brazos!
 ![Josue 1:9](media/josue_1.9.jpg)
-2. La pasión que tenés en todo lo relacionado a las misiones, cómo te involucrás, la investigación y esas ganas de compartirlo con todos, es muy bueno y me encanta. Por eso creo que el siguiente versículo viene bien, ya que nos insta a no ir sin cuidado, sino a estar siempre atentos, pero mansos.
+2. La pasión que tenés en todo lo relacionado a las misiones, cómo te involucrás, la investigación y esas ganas de compartirlo con todos, es muy bueno y me encanta. Por eso creo que el siguiente versículo viene bien, ya que nos insta a ir preparados sin perder la mansedumbre.
 ![Mateo 10:16](media/mateo_10.16.jpg)
 
 ### Final
