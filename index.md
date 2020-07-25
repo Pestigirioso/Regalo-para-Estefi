@@ -6,7 +6,7 @@ Antes te dije, sentí que lo mails anteriores quedaban por debado de muchas de l
 Creo que toda esta página es una gran pista, y ya no voy a decir más. Espero que puedas adivinar, jeje.
 
 ### ¿Y el regalo? ¿Dónde está mi regalo?
-![¿Donde está mi regalo?](media/Donde_esta_mi_hamburguesa.gif)
+![¿Donde está mi regalo?](media/Donde_esta_mi_hamburguesa.gif)  
 _Bueno che, paciencia, jajaja._
 
 Pues, es que siento que más que un regalo es un reconocimiento, así quería decirte que hay algunas cosas que admiro de vos:
