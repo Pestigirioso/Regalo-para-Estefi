@@ -22,4 +22,4 @@ Muchas gracias, Estefi, por todos estos años de amistad. Quizás no seamos taaa
 
 ¡Por muchos años más!
 
-![hi five](media/hf)
+![hi five](media/hf.gif)
